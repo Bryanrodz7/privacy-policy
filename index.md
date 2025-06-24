@@ -1,4 +1,4 @@
-Privacy Policy for Note Pro
+Privacy Policy for Ai Note Pro
 Last updated: June 24, 2025
 Thank you for choosing to be part of our community at Note Pro ("we", "our", "us"). We are committed to protecting your personal information and your right to privacy. This Privacy Policy explains how we collect, use, disclose, and safeguard your information when you use our mobile application Note Pro.
 Please read this privacy policy carefully. If you do not agree with the terms of this privacy policy, please do not access the application.
